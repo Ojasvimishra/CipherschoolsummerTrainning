@@ -1,1 +1,1 @@
-# CipherschoolsummerTrainning
+# CipherschoolsummerTraining
